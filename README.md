@@ -1,1 +1,1 @@
-CEO @ Meteor Game Studios
+i make games and stuff
